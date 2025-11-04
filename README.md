@@ -2,7 +2,6 @@
 
 ##  Data de entrega
  **19/11/2025 (quarta-feira)**  
-> Entregas após esta data poderão ter descontos conforme critérios definidos pelo professor.
 
 ---
 
